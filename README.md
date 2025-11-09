@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Hitanshu Bansal
-A passionate Data Analyst || AI Enthusiast || Full Stack Developer || Professional Video Editor || Graphic Designer from India
+A passionate Data Analyst || AI Enthusiast || Professional Video Editor || Graphic Designer from India
 
 📩 Email Me 👉 ✉️ hitanshuzoz@gmail.com for Collaboration, Projects, or Anything Tech. 🚀😊
 
